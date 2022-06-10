@@ -1,7 +1,7 @@
 ## The Book of Salt
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://monique-truong.com/wp-content/uploads/2010/06/bookofsalt-france.jpg)
+![avatar](https://i.ibb.co/X7QR4LL/IMG-1700.jpg)
 <br>
 <br>
 
