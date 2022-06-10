@@ -1,7 +1,7 @@
 ## The Book of Salt
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar]([https://www.collectorsweekly.com/articles/wp-content/uploads/2012/08/leyendecker3.jpg](https://monique-truong.com/wp-content/uploads/2010/06/bookofsalt-france.jpg))
+![avatar](https://monique-truong.com/wp-content/uploads/2010/06/bookofsalt-france.jpg)
 <br>
 <br>
 
